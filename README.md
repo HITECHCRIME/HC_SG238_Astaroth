@@ -8,9 +8,9 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Astaroth / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:**
 
